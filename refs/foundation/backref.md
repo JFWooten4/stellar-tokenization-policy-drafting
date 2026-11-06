@@ -1,3 +1,3 @@
 # Doc
 
-at https://web.archive.org/web/20261106185559/https://stellar.org/xlm-utility with the presumptive modeling
+https://cdn.sanity.io/files/e2r40yh6/production-i18n/1e067e436f0b8fa290e2adb4fed9804f8a480f1b.pdf
