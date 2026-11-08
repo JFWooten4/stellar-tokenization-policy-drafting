@@ -1,1 +1,1 @@
-we've got to get the alinearity across
+we've got to get the alignment across

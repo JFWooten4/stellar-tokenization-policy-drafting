@@ -1,1 +1,1 @@
-need yhe dir src on P18 20bps foundation
+need the dir src on P18 20bps foundation

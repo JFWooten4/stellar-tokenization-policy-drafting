@@ -17,7 +17,7 @@ These last few weeks of exciting developments have introduced some important col
 
 on the goal discussions
 
-## Immedfiate Relevance
+## Immediate Relevance
 
 As we configure the token methodology
-(this more disclosued in actual blog post circa 25th)
+(this more disclosed in actual blog post circa 25th)

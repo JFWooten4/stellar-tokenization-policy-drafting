@@ -1,4 +1,4 @@
-Two govenrneace coercision cases:
+Two government coercion cases:
 
-- deposit into anchor wallet offchain bridge
-- Deposit into Soroban AMM (simple impld)
+- Deposit into anchor wallet off-chain bridge
+- Deposit into Soroban AMM (simple impl'd)

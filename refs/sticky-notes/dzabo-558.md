@@ -1,4 +1,4 @@
-PROBABLY need tro do https://github.com/JFWooten4/trading-algos
+PROBABLY need to do https://github.com/JFWooten4/trading-algos
 
 also see chat links:
 - https://discord.com/channels/897514728459468821/907476473739354153/1158791737565782199
