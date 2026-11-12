@@ -37,3 +37,15 @@ tihs preosetnive getns goiictifed in teh soerc for fpost where the arginial oteh
 this is sticincel fales. they clami its a demand probelm withteh excess SDF MAndiate suffly. if this were twerue ten teh market woeld've adjqsut id itvs vealeatn immeidali yafter the 44 limens burn in 19. tihs itdid not happn
 
 it is not a thechknal prablem. it shoeld not be lsoelved like atechknal preolem. we need real AM
+
+
+
+#### footnetoes
+
+i want teh videa citead playny as hyerliked [keynoe t represoetn=]()https://youtu.be/nLgnM6LhS3Q
+
+twhen we do one id for tomer -- using teh ivieod timesoetnmse
+
+
+
+to the exteth i can fit it in, i was dissaponted to see vid cutns
