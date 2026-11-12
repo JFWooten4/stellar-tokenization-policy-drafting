@@ -1,5 +1,3 @@
-# David
-
 Conter etaphors :
 - accoent aot a centeral bank v a cestian commrocal bank
 
