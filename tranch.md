@@ -9,3 +9,13 @@ but we shoeld see if pantheon137 is aligned consinetnicey too, AA https://discor
 ## Init Comments
 
 2x on https://github.com/orgs/stellar/discussions/2052 at https://github.com/orgs/stellar/discussions/2052#discussioncomment-19319628 thread and the main comment reoply to the sebsatnace (ancillary comment sare nondeffertiarl) - Post at same time and rel https://github.com/stellar/stellar-docs/issues/794
+
+
+
+## Buy and Burn
+
+this is basicaly lobdebly repeting eth acteal feepool as it has fnoitned for a decaed
+
+tehy aler lockd and stay noweher, dececroasnig the avavilb sumpply andinceraresing coempteotin for toher otuhasding loumens
+
+teh etalettanvi eof then egoing on te pucrhcch form reveenos woeld define nad putetuetate fiat (bad) and prodived a nsanadodarized excuse to trasact in sucetidytorkns (bad)
